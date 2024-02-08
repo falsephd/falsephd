@@ -1,6 +1,3 @@
-whisper to int pretty pls
-sign my guestbook too 
 
 
-
-![11547667_414a5](https://github.com/falsephd/falsephd/assets/102171621/ae887b68-d8aa-4611-97e9-ead6ce26f6c2)
+![](https://64.media.tumblr.com/142d0bb79d4aad7834d908f8d9b332b6/957bad2c6a46f594-5b/s100x200/8d462eb25133d58705bdac5b59dfb9d2360c8f62.png)
