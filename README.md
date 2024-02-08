@@ -1,4 +1,4 @@
-feel free to int preferably whisper im really awkward meeting new people LMAAOO my bad shlawg
+whisper to int pretty pls
 
 
 
