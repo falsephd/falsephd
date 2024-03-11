@@ -1,7 +1,3 @@
 
 <p align="center">
-<img width="500" src="https://wilardo.crd.co/assets/images/gallery06/6c205281.png?v=b62e9456)https://wilardo.crd.co/assets/images/gallery06/6c205281.png?v=b62e9456">
-
-
-<p align="center">
-1st link - pony town rentry / 2nd - guestbook / 3rd - anonymous drawings
+<img width="100" src= "https://gifcity.carrd.co/assets/images/gallery51/9cbd4e4c.jpg?v=26dffab5">
